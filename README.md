@@ -1,1 +1,0 @@
-# lob-code-competition
